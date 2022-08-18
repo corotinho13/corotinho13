@@ -1,4 +1,4 @@
-#  sobre mim 
+#  Sobre mim 
 
 - 👋 Ola meu nome é  @corotinho13
 
