@@ -1,4 +1,4 @@
-#  Sobre mim :kissing_heart:
+#  Sobre mim :grin:
 
 - 👋 Ola meu nome é  @corotinho13
 
